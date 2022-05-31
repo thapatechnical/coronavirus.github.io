@@ -1,1 +1,1 @@
-# coronavirus.github.io
+corona is not spreading anymore.
